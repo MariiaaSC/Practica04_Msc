@@ -14,3 +14,7 @@ GitHub
 
 Aules
 ![imagen](https://github.com/user-attachments/assets/a026df61-c24c-4304-ad90-9ea1d63de207)
+
+Noticias
+https://elpais.com/espana/2024-10-29/la-dana-en-espana-en-directo-ultimas-noticias-del-temporal-y-las-inundaciones.html
+
